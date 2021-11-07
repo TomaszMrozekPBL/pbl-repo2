@@ -1,0 +1,1 @@
+Please read this .pdf file before starting the class.
